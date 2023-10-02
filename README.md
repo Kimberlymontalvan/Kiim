@@ -1,2 +1,2 @@
 vamos sair uhul!
-sou nova no colégio 
+sou nova no colégio 🤩🤑
